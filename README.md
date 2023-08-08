@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MakingGuy314
+- 👀 I’m just here to make stuff
+- 🌱 I’m currently learning how to use Github
+- 💞️ I’m looking to collaborate on nothing
